@@ -19,6 +19,6 @@ DONT FORGET TO SAY THANKS ON MY XDA PAGE PLS '^^
 
 
 If you want to help me or suggest me some ideas you can send mail
-Mail : jck0day@gmail.com
+Mail : xhookmandev@gmail.com
 
 ### You can now give me [donation](https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&hosted_button_id=A3YW496LXQZ5A&source=url) if you want to support all my free works. A big thanks if you give me this reward it's very sympathic :)
